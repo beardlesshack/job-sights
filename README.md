@@ -9,7 +9,7 @@
 
 ![Image](https://github.com/user-attachments/assets/0a15deef-1a60-4c98-8cf5-d8853d39501b)
 # full kitchen remodel, 
-![Image](https://github.com/user-attachments/assets/385fdf13-7d63-424b-8bca-e5af30232906)
+![Image](https://github.com/user-attachments/assets/65be83e3-1b2e-48fd-87f4-ad96e7c9f9ed)
 
 ![Image](https://github.com/user-attachments/assets/7f01ef07-7bdd-4658-92a8-4c0544c923cc)
 ![Image](https://github.com/user-attachments/assets/e0a4247a-9128-46bd-bf42-fd22a974b2f8)
