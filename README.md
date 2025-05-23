@@ -1,19 +1,48 @@
-## the unsavable rich
-![taboo 1992](https://github.com/user-attachments/assets/4de7c0b4-1bf3-49f9-bef9-e8993d0a6ecf)
+## FOH photos
+![IMG_3935](https://github.com/user-attachments/assets/b355c84e-b59c-48ae-aa1f-faa3af26805a)
+![IMG_0953](https://github.com/user-attachments/assets/19b1d3dc-1268-4f58-99b6-31b75e508b60)
+![IMG_1117](https://github.com/user-attachments/assets/28e05435-38fd-4f24-8eba-3765f80a5933)
+
+![rfimage](https://github.com/user-attachments/assets/1c486dd5-5680-4922-8da7-209a38096423)
+![IMG_7246](https://github.com/user-attachments/assets/33bb32ea-9901-43ac-a8ee-92a349336135)
+
+
+## Studio photos
+![IMG_4478](https://github.com/user-attachments/assets/6cbf9d86-0e4f-4116-89f6-400bf8e7f14c)
 
 ![albums03 047](https://github.com/user-attachments/assets/656facd5-26e3-4705-92cc-539851563ae1)
+![lil_rig](https://github.com/user-attachments/assets/6d408c79-7a39-4389-8f5f-18d7c10221c0)
+
+## band 
+![IMG_7580](https://github.com/user-attachments/assets/07cd93f5-e07c-44da-8a40-f53443d6b5d7)
+
+![taboo 1992](https://github.com/user-attachments/assets/4de7c0b4-1bf3-49f9-bef9-e8993d0a6ecf)
+
+
 ![uo](https://github.com/user-attachments/assets/c19162da-1734-40c1-9e93-cf8b5cc45a26)
 ![20130607 iphone 165](https://github.com/user-attachments/assets/99ec17bb-8055-4a1f-9187-daf5a8ae72b2)
 
 ![image1](https://github.com/user-attachments/assets/f3c767d2-bedd-4b0e-8ead-b9f67e9c58df)
-# DBPsite-wip
+
+
+
+## graphic design
+![IMG_1317](https://github.com/user-attachments/assets/adb63c69-c6ca-4ccb-8616-401e97e82b18)
+![IMG_0024 (3)](https://github.com/user-attachments/assets/9a4a5ff9-84c2-4ef4-b805-16b016d9a3d5)
+
+![IMG_0045](https://github.com/user-attachments/assets/9b7315a5-959b-45a2-813a-8a7cf7f79707)
+![IMG_0053](https://github.com/user-attachments/assets/e9390d42-30cc-43d0-869e-32e302533e13)
+
+
+
+## website design
 
 ![screen gif](https://github.com/user-attachments/assets/373c16f4-9488-4584-9f7b-4546e751eb53)
 
 
-# [scratchpoststudio.com ](https://www.ScratchPostStudio.com)
+## [scratchpoststudio.com ](https://www.ScratchPostStudio.com)
 
-## Original designs Cat and animal theme Artwork for sale
+
 
 ![sps ex2](https://github.com/user-attachments/assets/08b7bd40-c8e4-4e3d-a7aa-762323aefc2f)
 
