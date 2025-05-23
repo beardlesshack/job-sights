@@ -1,4 +1,6 @@
-![dbp_ss](https://github.com/user-attachments/assets/5299a745-a41e-43c5-9191-19cefc6dc242)
+# view of the site wip
+
+![screen gif](https://github.com/user-attachments/assets/373c16f4-9488-4584-9f7b-4546e751eb53)
 
 
 # job-sights
