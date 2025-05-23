@@ -2,10 +2,16 @@
 
 ![screen gif](https://github.com/user-attachments/assets/373c16f4-9488-4584-9f7b-4546e751eb53)
 
-# ScratchPostStudio.com webite
-## Original designs Cat and animal theme Artwork for sale
-[scratchpoststudio.com ](https://www.ScratchPostStudio.com)
 
+# [scratchpoststudio.com ](https://www.ScratchPostStudio.com)
+
+## Original designs Cat and animal theme Artwork for sale
+
+![sps ex2](https://github.com/user-attachments/assets/08b7bd40-c8e4-4e3d-a7aa-762323aefc2f)
+
+![sps mug](https://github.com/user-attachments/assets/97769d84-bf1f-4241-8424-23ef01ccc50f)
+
+![sps comm](https://github.com/user-attachments/assets/18421eab-1f00-4878-bc74-2794b72e149a)
 
 # recent-job-sights
 # 12 x 24 Custom deck with mini-bar and bench around Lychee tree.
