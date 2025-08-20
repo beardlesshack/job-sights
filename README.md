@@ -2,18 +2,33 @@
 ![IMG_3935](https://github.com/user-attachments/assets/b355c84e-b59c-48ae-aa1f-faa3af26805a)
 ![IMG_0953](https://github.com/user-attachments/assets/19b1d3dc-1268-4f58-99b6-31b75e508b60)
 ![IMG_1117](https://github.com/user-attachments/assets/28e05435-38fd-4f24-8eba-3765f80a5933)
+![IMG_1624](https://github.com/user-attachments/assets/c8e6664c-1062-4f96-9a64-bcea609f0df7)
+
 
 ![rfimage](https://github.com/user-attachments/assets/1c486dd5-5680-4922-8da7-209a38096423)
 ![IMG_7246](https://github.com/user-attachments/assets/33bb32ea-9901-43ac-a8ee-92a349336135)
 
 
-## Studio photos
+## Studios
 ![IMG_4478](https://github.com/user-attachments/assets/6cbf9d86-0e4f-4116-89f6-400bf8e7f14c)
+![albums03 048](https://github.com/user-attachments/assets/f94a1281-1d63-4183-9340-2283ace82274)
+
 
 ![albums03 047](https://github.com/user-attachments/assets/656facd5-26e3-4705-92cc-539851563ae1)
+![5 1mr](https://github.com/user-attachments/assets/dfc19ac7-7191-4006-a83c-e1cbc17347ea)
+
 ![lil_rig](https://github.com/user-attachments/assets/6d408c79-7a39-4389-8f5f-18d7c10221c0)
 
-## band 
+## Compositions
+
+
+https://github.com/user-attachments/assets/cea477f7-e843-47c8-9b55-af54dbf193aa
+
+[Haunted 60 print.wav](https://github.com/user-attachments/files/21899170/Haunted.60.print.wav)
+
+
+
+## Band 
 ![IMG_7580](https://github.com/user-attachments/assets/07cd93f5-e07c-44da-8a40-f53443d6b5d7)
 
 ![taboo 1992](https://github.com/user-attachments/assets/4de7c0b4-1bf3-49f9-bef9-e8993d0a6ecf)
@@ -26,7 +41,7 @@
 
 
 
-## graphic design
+## Graphic Design
 ![IMG_1317](https://github.com/user-attachments/assets/adb63c69-c6ca-4ccb-8616-401e97e82b18)
 ![IMG_0024 (3)](https://github.com/user-attachments/assets/9a4a5ff9-84c2-4ef4-b805-16b016d9a3d5)
 
@@ -35,7 +50,7 @@
 
 
 
-## website design
+## Website Design
 
 ![screen gif](https://github.com/user-attachments/assets/373c16f4-9488-4584-9f7b-4546e751eb53)
 
@@ -50,13 +65,13 @@
 
 ![sps comm](https://github.com/user-attachments/assets/18421eab-1f00-4878-bc74-2794b72e149a)
 
-# recent-job-sights
+# 2025-job-sights
 # 12 x 24 Custom deck with mini-bar and bench around Lychee tree.
 # 5/4 PT deck board on 2x4 PT joyce hangers.
 ![Image](https://github.com/user-attachments/assets/81fb5a8b-16a6-46e6-9de6-92b29c71c02e)
 ![Image](https://github.com/user-attachments/assets/89cc91c7-61c3-4c82-9f0f-3b09e30d3fb7)
 
-# full kitchen remodel.
+# full kitchen remodel
 ![Image](https://github.com/user-attachments/assets/f5356959-ddf9-4215-b175-bef757ee7f8c)
 ![Image](https://github.com/user-attachments/assets/a0fb90e6-60f8-49f9-9960-37f26f710f2d)
 ![Image](https://github.com/user-attachments/assets/f4d3cb54-c2c4-4c88-98c3-93c07bdff33c)
