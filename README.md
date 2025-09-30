@@ -43,7 +43,6 @@ https://soundcloud.com/deepbreathprotocol
 
 ![20130607 iphone 165](https://github.com/user-attachments/assets/99ec17bb-8055-4a1f-9187-daf5a8ae72b2)
 
-![Uploading uo.png…]()
 
 ![uo lpc2](https://github.com/user-attachments/assets/0fbe995d-b91b-4805-a03c-2792e03a02a5)
 
@@ -55,6 +54,8 @@ https://soundcloud.com/deepbreathprotocol
 
 
 ## Graphic Design
+<img width="512" height="512" alt="dirt 1" src="https://github.com/user-attachments/assets/82724831-6857-4ae6-aa60-6c59a8455965" />
+
 ![IMG_1317](https://github.com/user-attachments/assets/adb63c69-c6ca-4ccb-8616-401e97e82b18)
 ![IMG_0024 (3)](https://github.com/user-attachments/assets/9a4a5ff9-84c2-4ef4-b805-16b016d9a3d5)
 
@@ -87,7 +88,7 @@ https://soundcloud.com/deepbreathprotocol
 # full kitchen remodel
 ![Image](https://github.com/user-attachments/assets/f5356959-ddf9-4215-b175-bef757ee7f8c)
 ![Image](https://github.com/user-attachments/assets/a0fb90e6-60f8-49f9-9960-37f26f710f2d)
-![Image](https://github.com/user-attachments/assets/f4d3cb54-c2c4-4c88-98c3-93c07bdff33c)
+<img width="1024" height="1536" alt="kitchen view3" src="https://github.com/user-attachments/assets/0edfb5ce-e8c7-4b27-a001-8f15ab1d0f00" />
 
 
 ![Image](https://github.com/user-attachments/assets/3f4ea763-bb81-48cc-afc1-4dba84825801)
