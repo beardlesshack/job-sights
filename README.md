@@ -54,7 +54,7 @@ https://soundcloud.com/deepbreathprotocol
 
 
 ## Graphic Design
-<img width="512" height="512" alt="dirt 1" src="https://github.com/user-attachments/assets/82724831-6857-4ae6-aa60-6c59a8455965" />
+![dirtbag1](https://github.com/user-attachments/assets/072dc2f1-5d63-440b-9785-7ce57fb67b03)
 
 ![IMG_1317](https://github.com/user-attachments/assets/adb63c69-c6ca-4ccb-8616-401e97e82b18)
 ![IMG_0024 (3)](https://github.com/user-attachments/assets/9a4a5ff9-84c2-4ef4-b805-16b016d9a3d5)
